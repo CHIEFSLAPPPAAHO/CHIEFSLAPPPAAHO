@@ -5,6 +5,6 @@
 - 📫 How to reach me ... idk how to you reach anyone on the internet
 
 <!---
-CHIEFSLAPPPAAHO/CHIEFSLAPPPAAHO is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+CHIEFSLAPPPAAHO is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->

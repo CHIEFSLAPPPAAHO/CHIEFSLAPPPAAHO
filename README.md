@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CHIEFSLAPPPAAHO
+- 👋 Hi, I’m @ Andybo
 - 👀 I’m interested in ... gettin high and playing gears of war 
 - 🌱 I’m currently learning ... this, that and everything
 - 💞️ I’m looking to collaborate on ...  anything
